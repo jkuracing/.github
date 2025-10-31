@@ -45,10 +45,10 @@ If your company is interested in collaborating, please reach out to us at **[off
 
 ## 🏁 Connect With Us
 
-🌐 **Website:** [www.jkuracingteam.at](https://www.jkuracing.at)
-📸 **Instagram:** [@jkuracingteam](https://www.instagram.com/jku_racing/)
+🌐 **Website:** [www.jkuracing.at](https://www.jkuracing.at)
+📸 **Instagram:** [@jku|racing](https://www.instagram.com/jku_racing/)
 💼 **LinkedIn:** [JKU Racing Team](https://www.linkedin.com/company/jku-racing-team)
-📧 **Email:** [info@jkuracingteam.at](mailto:office@jkuracing.at)
+📧 **Email:** [office@jkuracing.at](mailto:office@jkuracing.at)
 
 ---
 
